@@ -1,6 +1,6 @@
 # PRO-C26-MASTERCHEF-JUNIOR
 
-rasgulla recipe | bengali rosogulla | how to make sponge rasgulla
+rasgulla recipe | bengali rasgulla | how to make sponge rasgulla
 
 PREP TIME:10 MINUTES
 
